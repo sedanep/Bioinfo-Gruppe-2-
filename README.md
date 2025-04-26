@@ -1,2 +1,2 @@
 # Bioinfo-Gruppe-2-
-Hey, you guys!  
+Hey, how's it going?
